@@ -1,5 +1,21 @@
 # CPE-310-2526A
 
-Tuazon, Hazel Ann I.
+<div align="center">
+  <img src="https://media1.tenor.com/m/92MplgQwb80AAAAC/cat-meme-wave-emoji.gif" alt="Cat Meme Waving Emoji" width="100px">
 
-##### About Me
+  <h2>Hey there! I'm Hazel Ann I. Tuazon 👋</h2>
+  
+  <p>Currently a second year Bachelor of Science in Industrial Engineering.</p>
+</div>
+
+---
+
+## **| ᓚᘏᗢ | ABOUT ME゛ ˎˊ˗**
+### **⊹₊˚‧︵‿₊୨ Hobbies & Interest ୧₊‿︵‧˚₊⊹**
+* 📖 Reading comics and novels
+* 🎬Watching movies and some animes
+* 🍽️ Eating
+* 💤 Sleeping
+* 🎧Listening to music
+
+> *"Please hesitate to call me, I have social anxiety.ㅤꨄ︎"* 
