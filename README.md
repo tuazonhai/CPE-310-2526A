@@ -13,7 +13,7 @@
 ## **| ᓚᘏᗢ | ABOUT ME゛ ˎˊ˗**
 ### **⊹₊˚‧︵‿₊୨ Hobbies & Interest ୧₊‿︵‧˚₊⊹**
 * 📖 Reading comics and novels
-* 🎬Watching movies and some animes
+* 🎬 Watching movies and some animes
 * 🍽️ Eating
 * 💤 Sleeping
 * 🎧Listening to music
