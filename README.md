@@ -18,4 +18,4 @@
 * 💤 Sleeping
 * 🎧Listening to music
 
-> *"Please hesitate to call me, I have social anxiety.ㅤꨄ︎"* 
+> *"Hiraya Manawari✨"* 
