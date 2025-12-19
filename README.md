@@ -5,7 +5,7 @@
 
   <h2>Hey there! I'm Hazel Ann I. Tuazon 👋</h2>
   
-  <p>Currently a 2nd Year Bachelor of Science in Industrial Engineering.</p>
+  <p>Currently a 2nd Year Bachelor of Science in Industrial Engineering student.</p>
 </div>
 
 ---
